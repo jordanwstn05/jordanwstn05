@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @jordanwstn05
+- 🌱 I’m currently selling Beaming Methods
+- 📫 How to reach me: jordanwasthon2005@gmail.com
